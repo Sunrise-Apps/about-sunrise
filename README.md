@@ -6,4 +6,4 @@ amazing things in the future, and just send us a message about what you want in 
 best to make it for you! If you want to become a part of Sunrise Applications, just send us a message. 
 Farewell,
 Ben
-CEO of Sunrise Apps
+
